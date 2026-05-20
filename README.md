@@ -1,1 +1,1 @@
-Read here firt!
+Read here first!
